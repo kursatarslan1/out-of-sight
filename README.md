@@ -28,4 +28,4 @@ This Privacy Policy may be updated in the future if the functionality of the gam
 
 If you have any questions regarding this Privacy Policy, please contact:
 
-**[Developer Email]**
+**[krs.arslan@gmail.com]**
